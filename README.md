@@ -1,2 +1,0 @@
-# digital-marketign
-digital marketing
